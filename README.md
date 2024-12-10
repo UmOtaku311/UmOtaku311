@@ -6,4 +6,4 @@
 
 ✨ [Tiktok](https://www.tiktok.com/@.pessoa.normal_?lang=pt-BR)
 
-![]([https://assets.teenvogue.com/photos/6352906dd6b540dd757e618e/3:2/w_6524,h_4349,c_limit/Taylor%20Swift%20Midnights%20Press%20Shot%204_Photographer%20credit:%20Beth%20Garrabrant.jpg](https://pbs.twimg.com/media/Fm6pRIYaEAIxvkF.jpg:large))
+![]([https://assets.teenvogue.com/photos/6352906dd6b540dd757e618e/3:2/w_6524,h_4349,c_limit/Taylor%20Swift%20Midnights%20Press%20Shot%204_Photographer%20credit:%20Beth%20Garrabrant.jpg](https://pbs.twimg.com/media/Fm6pRIYaEAIxvkF.jpg))

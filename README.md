@@ -6,4 +6,4 @@
 
 ✨ [Tiktok](https://www.tiktok.com/@.pessoa.normal_?lang=pt-BR)
 
-![](https://media.tenor.com/x-LsC6YSfl8AAAAM/anfi_onsf.gif)
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQI4jAQ4um81rGNyVn_JAPTg7BXtkgWCMsHyw&s)
